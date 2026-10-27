@@ -2,7 +2,7 @@
 
 **Engenharia de Software | Infraestrutura de TI, DevOps & Desenvolvimento Web**  
 Cascavel, PR — Brasil  
-[LinkedIn](https://www.google.com/search?q=https://www.linkedin.com/in/eduardo-camilo-a4a940428/) • [GitHub](https://github.com/IIEduardoII) • [eduardocamilo10w@gmail.com](mailto:eduardocamilo10w@gmail.com)
+[LinkedIn](https://www.google.com/search?q=https://www.linkedin.com/in/eduardo-camilo-a4a940428/) • [eduardocamilo10w@gmail.com](mailto:eduardocamilo10w@gmail.com)
 
 ## Sobre Mim
 
